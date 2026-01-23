@@ -1,6 +1,6 @@
 ## Salutations fellow Homo Sapiens! ( •̀ ω •́ )✧
 
-My name is Hongsovannara Yin, but call me Nara if the pronunciation terrifies you!<br><br>I am a Cambodian Highschool Freshman currently studying in the [USA](https://en.wikipedia.org/wiki/List_of_non-coherent_units_of_measurement) 🦅!<br><br>Despite this being a Github profile, I am very much inexperienced when it comes to coding. Expected more? I'll give you a moment to lower your expectations then ;p<br><br>Instead, you will find that I am a former TEDx Speaker, Debate Winner, Public Speaker, Multiple time winner of numerous Model UNs and most importantly, avid feline aficionado and laufey fanatic. (*/ω＼*)
+My name is Hongsovannara Yin, but call me Nara if the pronunciation terrifies you!<br><br>I am a Cambodian Highschool Freshman currently studying in the [USA](https://en.wikipedia.org/wiki/List_of_non-coherent_units_of_measurement) 🦅!<br><br>Despite this being a Github profile, I am very much inexperienced when it comes to coding. Expected more? I'll give you a moment to lower your expectations then ;p<br><br>Instead, you will find that I am a former TEDx Speaker, Debate Winner, Public Speaker, Multiple time winner of numerous Model UNs and most importantly, avid feline aficionado and laufey fanatic. (*/ω＼*)<br><br>So please... follow along in my journey... From The Start~ (Ooh, Laufey reference!)
 
 
 ## 🌐 Socials:
@@ -18,5 +18,3 @@ My name is Hongsovannara Yin, but call me Nara if the pronunciation terrifies yo
 
 ---
 [![](https://visitcount.itsvg.in/api?id=HongsovannaraYin&icon=0&color=1)](https://visitcount.itsvg.in)
-
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
