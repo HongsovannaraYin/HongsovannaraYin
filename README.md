@@ -1,6 +1,6 @@
 ## Salutations fellow Homo Sapiens! ( •̀ ω •́ )✧
 
-My name is Hongsovannara Yin, but call me Nara if the pronunciation terrifies you!<br><br>I am a Cambodian Highschool Freshman currently studying in the [USA](https://en.wikipedia.org/wiki/List_of_non-coherent_units_of_measurement) 🦅!<br><br>Despite this being a Github profile, I am very much inexperienced when it comes to coding. Expected more? I'll give you a moment to lower your expectations then ;p<br><br>Instead, you will find that I am a former TEDx Speaker, Debate Winner, Public Speaker, Multiple time winner of numerous Model UNs and most importantly, avid feline aficionado and laufey fanatic. (*/ω＼*)<br><br>So please... follow along in my journey... From The Start~ (Ooh, Laufey reference!)
+My name is [Hongsovannara Yin](https://refreshed-standards-081979.framer.app/), but call me Nara if the pronunciation terrifies you!<br><br>I am a Cambodian Highschool Freshman currently studying in the [USA](https://en.wikipedia.org/wiki/List_of_non-coherent_units_of_measurement) 🦅!<br><br>Despite this being a Github profile, I am very much inexperienced when it comes to coding. Expected more? I'll give you a moment to lower your expectations then ;p<br><br>Instead, you will find that I am a [former TEDx Speaker](https://www.youtube.com/watch?v=siqSJHhcMSE), Debate Winner, Public Speaker, Multiple time winner of numerous Model UNs and most importantly, avid feline aficionado and laufey fanatic. (*/ω＼*)<br><br>So please... follow along in my journey... From The Start~ (Ooh, Laufey reference!)
 
 
 ## 🌐 Socials:
